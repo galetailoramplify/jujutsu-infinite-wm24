@@ -1,4 +1,4 @@
-#  
+#  professional Scripts for jujutsu infinite offers the most advanced jujutsu infinite Script, with auto-farm and auto-upgrade. Perfect for dominating
 
 
 
